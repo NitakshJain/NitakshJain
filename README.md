@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Doing an Internship for Digital Marketing
 - 📫 How to reach me: 7878251773 or nitakshj@gmail.com
 - 😄 Pronouns: He, Him
-- ⚡ Fun fact: Did you know that even 9th Graders can DO WONDERS!! I am one of them...
+- ⚡ Fun fact: Did you know that even 9th Graders can DO WONDERS!! I am one of them... Are You?
 
 <!---
 NitakshJain/NitakshJain is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
